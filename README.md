@@ -11,5 +11,5 @@
 
 📫 How to reach me omar.a.m.mahran@gmail.com | [linkedIn](https://www.linkedin.com/in/omar-a-mahran/)
 
-📄 Know about my experiences [CV](https://www.canva.com/design/DAFG4EQ3rEs/jMA1wTGRlMD11as4qNM7VQ/view?utm_content=DAFG4EQ3rEs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+📄 Know about my experiences [CV](https://www.canva.com/design/DAFQIiyzNhA/x2c2KJKekAiufcDLqdf80g/view?utm_content=DAFQIiyzNhA&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
 
