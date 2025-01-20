@@ -7,7 +7,7 @@
 
 🤝 I’m interested in Software Development
 
-💬 Ask me about PHP , Javascript , OOP
+💬 Ask me about Node , PHP , Javascript , OOP
 
 📫 How to reach me omar.a.m.mahran@gmail.com | [linkedIn](https://www.linkedin.com/in/omar-a-mahran/)
 
